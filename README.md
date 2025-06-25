@@ -1,0 +1,1 @@
+# TurkcellGygy-vize1
